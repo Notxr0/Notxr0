@@ -1,1 +1,1 @@
-Anonyomus Symbian developer 
+.
